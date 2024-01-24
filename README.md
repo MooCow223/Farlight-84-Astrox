@@ -1,4 +1,4 @@
-![1](https://github.com/MooCow223/Farlight-84-Dullwave/assets/116077957/aadcc116-de01-4aa9-a6ad-959b20c364df)
+![1](https://github.com/MooCow223/Farlight-84-Astrox/assets/116077957/23a3b172-fd9f-4e92-aa74-713158e12ccc)
 
 # 🗃[Launcher](https://mediafire.com/file_premium/utxrx50t9fcss6s/Project/file)
 
